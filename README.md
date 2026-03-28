@@ -4,3 +4,4 @@ Go beans!
 # beanfanclub go!!
 Games linked!!
 # bean member signup (yup)
+out soon kids stay tuned
